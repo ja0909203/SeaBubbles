@@ -1,3 +1,3 @@
-# SeaBubbles##Jo(h)nSquared
+# SeaBubbles ##Jo(h)nSquared
 ##Jon Adzick
 ##John McCain
